@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BusigampalaSaikarthik
+- 👋 Hi, I’m @Busigampala Saikarthik
 - 👀 I’m interested in Graphic designing 
 - 🌱 I’m currently learning Website Designing
 - 💞️ I’m looking to collaborate on Highly Designing company 
