@@ -2,7 +2,7 @@
 - 👀 I’m interested in Graphic designing 
 - 🌱 I’m currently learning Website Designing
 - 💞️ I’m looking to collaborate on Highly Designing company 
-- 📫 How to reach me @iamnaniiiiii
+- 📫 How to reach me @iamnaniiiiii IG
 - 😄 Pronouns: Nani
 - ⚡ Real fact: Live and Learn🌊❗
 
